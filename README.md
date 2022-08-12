@@ -1,0 +1,4 @@
+- Hi, I’m Mifta Setya Pratama
+- I am student at SMKNN 1 Jenangan from class X-RPL B
+- This is my official github account
+- You can message me at @mftasty (Instagram)
